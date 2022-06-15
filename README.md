@@ -1,1 +1,1 @@
-# voidz.github.io
+# What is Voidz?
